@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on insightful projects
 - 📫 How to reach me ssokoedata@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am competitive 
+- ⚡ Fun fact: I am competitive and result oriented 
 
 <!---
 SamuelOkoe/SamuelOkoe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
